@@ -1,2 +1,2 @@
 # Roblox-Sword-Fighting-Script
-lets have sex
+This is heavily skidded and looks hella weird in some games. But it works, so whatever/
